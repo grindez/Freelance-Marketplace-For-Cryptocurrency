@@ -1,3 +1,5 @@
+# How To Make a Living Freelancing and Working Remotely
+
 The freelance economy has experienced enormous growth in talented individuals looking to work on their own time. A freelancer has the freedom to choose how they want to work. I plan to give you an overview of the skills and qualities a freelance should possess in order to make a living as a freelancer. I also plan to discuss marketplaces I have experienced in my years of freelancing in the gig economy and what you can do to increase your chances of being hired as a freelancer while working remotely.Working remotely has become familiar with fewer people working in offices and more from their own homes. With the shift of freelance and remote work occurring in data science and nearly every industry, the question remains… what is the best way to get into freelance or remote gigs?
 
 What Is Freelancing? A Basic Definitionx
